@@ -1,3 +1,11 @@
+DAPA NIH BOSSSSSSSSSS!!!!!
+instagram : @dhafaamaulana
+
+
+
+
+
+
 C. Contoh Study Case (Dibimbing Asprak)
 
 Studi Kasus: Sebuah pabrik tekstil membutuhkan kalkulator untuk menghitung sisa potongan kain. Jika 1
